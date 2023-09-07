@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **jenishdobariya5675@gmail.com**
 
-- ⚡ Fun fact **I love swimming. I am not good at it, but I like swimming.g**
+- ⚡ Fun fact **I love swimming. I am not good at it, but I like swimming.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
